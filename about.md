@@ -24,11 +24,7 @@ Postdoc, Asia Pacific Center for Theoretical Physics.
 
 ### Also been affiliated with
 
-Committee member of G20 Presiendial HouseDepartment of Sociology, Stockholm University.
-
-The Institute for Futures Studies.
-
-Okayama Law Office, Okayama, Japan.
+Committee member of G20 Presiendial House
 
 ### Degrees & education
 
