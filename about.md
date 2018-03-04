@@ -11,6 +11,7 @@ I am a Korean scientist living and working in Chile. My research focuses on comp
 ## Contact info
 
 E-mail: hkim@utalca.cl
+
 Department of Industrial Engineering, University of Talca
 
 ## CV
@@ -18,17 +19,21 @@ Department of Industrial Engineering, University of Talca
 ### Positions & postdocs
 
 Faculty , Institute of Innovative Research, Tokyo Institute of Technology.
+
 Postdoc, Asia Pacific Center for Theoretical Physics.
 
 ### Also been affiliated with
 
 Committee member of G20 Presiendial HouseDepartment of Sociology, Stockholm University.
+
 The Institute for Futures Studies.
+
 Okayama Law Office, Okayama, Japan.
 
 ### Degrees & education
 
 PhD in Theoretical Physics, Sungkyunkwan University, South Korea, 2016.
+
 BSc in Genetic Engineering, Korea University, South Korea, 2002.
 
 ## Me online
